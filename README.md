@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Rahul jha
-**A passionate software developer || problem solving
+**A passionate software developer || problem solver
 
 Email Me 👉 ✉️ **rahuljhads556@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
